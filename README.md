@@ -11,5 +11,5 @@ hubungi kontak di Bawah
 
 https://programmagangmplbcimahi.blogspot.com/
 https://programmagangmplbcimahi.blogspot.com/2024/12/085624371576-pkl-jurusan-akutansi-di.html
-https://justpaste.it/gs5ei
+https://imgur.com/gallery/085624371576-pelatihan-pkl-akutansi-di-bandung-barat-layanan-pkl-akutansi-di-bandung-barat-AbkPUst
 
